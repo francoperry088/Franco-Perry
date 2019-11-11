@@ -1,0 +1,2 @@
+# Franco-Perry
+Netgear routers need complete setup in order to use the routers for establishing wired or wireless networks both. The users can have their setup for networking device, includes installation and accessed in a network and in this case www.routerlogin.net setup is known to be the easiest and fast configuration source of Netgear wireless networking devices.    http://netgeargenierouter.net/
